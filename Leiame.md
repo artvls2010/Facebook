@@ -10,3 +10,6 @@ Gostou do curso? Quer mais? Ajude com uma doação, até um café é válido. :)
 
 [apoia.se.com.br/entrosadoarthur] (https://www.apoia.se.com.br/entrosadoarthur/projects)
 
+paypal donate:paypal.com.br/doa-se-dinheiro-pra-mim/projeto-brabo/
+
+pague bem: pague.bem.com.br/doa-se-dinherioobrigado/
